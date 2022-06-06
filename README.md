@@ -1,5 +1,3 @@
 - 🩸 @777javi
-- 💞️ Interested in: bitches
-- 🩸 Currently learning: C# and C++
-- 💞️ Projects: Nebula, Bape
-- 🩸 Discord: javi.#0001
+- 💞️ C++ enjoyer
+- 🩸 discord: javi.#0001
