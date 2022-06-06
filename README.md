@@ -1,3 +1,3 @@
 - 🩸 @777javi
-- 💞️ C++ enjoyer
+- 💞️ c++ enjoyer
 - 🩸 discord: javi.#0001
