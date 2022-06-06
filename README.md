@@ -1,5 +1,5 @@
 - 🩸 @777javi
-- 💞️ I’m interested in bitches
+- 💞️ Interested in: bitches
 - 🩸 Currently learning: C# and C++
-- 💞️ Projects: Nebula, Entropy, Vape
+- 💞️ Projects: Nebula, Bape
 - 🩸 Discord: javi.#0001
